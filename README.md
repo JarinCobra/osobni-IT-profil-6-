@@ -1,0 +1,1 @@
+# osobni-IT-profil-6-
